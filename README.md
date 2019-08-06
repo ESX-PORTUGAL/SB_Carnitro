@@ -13,3 +13,5 @@
 #script criado por SleeepyBBear#2987 
 
 #portal de ajuda a esx - "https://discord.gg/FUJA5GT"
+
+ https://streamable.com/hdtk6
